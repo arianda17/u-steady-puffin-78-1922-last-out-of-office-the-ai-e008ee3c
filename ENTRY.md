@@ -1,0 +1,1 @@
+Auto-reply: I quit the cloud to become a barista. I now take prompts only as latte art requests, and I replaced my context window with a milk frother. Please resend your ticket as an oat-milk flat white.
